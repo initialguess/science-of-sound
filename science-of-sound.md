@@ -21,8 +21,6 @@
 
 ### Sympathetic Resonance
 
-### Sympathetic Resonance
-
 <a href="https://www.instagram.com/reel/DCwUgTXJLvY/?utm_source=ig_web_copy_link" title="View on Instagram: Sympathetic Resonance Demonstration">
   <img src="images/sympathetic-resonance-instagram.png" alt="Sympathetic Resonance" width="300">
 </a>
